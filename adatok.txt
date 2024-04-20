@@ -1,0 +1,3 @@
+Fekete László
+Gazdaságinformatikus - alapképzés (BA/BSc/BProf)(GAIN-AT-07)(Felv. éve:2023/24/1[Távoktatás])
+I3TWJV
